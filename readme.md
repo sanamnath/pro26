@@ -1,0 +1,2 @@
+Biriyani recipe is always a mouth-watering dish for everyone and when it comes to as chicken biriyani it's the favourite ever known. Today we are going to make a delicious and mouth-watering chicken biriyani.
+we will be using few ingredients and make our easy biriyani.
